@@ -14,4 +14,4 @@ Your campaign suggestion should be unique and be very clear on the campaign offe
 your recommendation will go through the revenue assurance team. If they find that you are 
 giving a lot of free (or subsidized) stuff thereby making a loss to the company; they are not going 
 to approve your recommendation. 
-Hence be very careful while providing campaign recommendation
+
